@@ -1,2 +1,2 @@
-# repositorio6-EstadosBrasileiros
+# repositorio6-EstadosUnidos
 atividade. entrega - 22/09/2026
